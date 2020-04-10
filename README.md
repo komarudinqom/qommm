@@ -1,3 +1,6 @@
 # qommm
 
-Hello i an a new be to get betha fvp
+Hi Human
+Qom here, i like this app.
+i've had tacos
+
